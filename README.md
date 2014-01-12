@@ -1,3 +1,3 @@
-FooCoin (FOO)
+GustaCoin (GUS)
 
 Blah, blah, blah.
