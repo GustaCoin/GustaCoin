@@ -1,3 +1,3 @@
 GustaCoin (GUS)
 
-Blah, blah, blah.
+Me Gusta.. James.
